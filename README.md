@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @Prakharvarathe26
+- 👀 I’m interested in  JAVA Developer||Python
+- 🌱 I’m currently learning Full Stack Java Developer
+- 🔬 Research Work https://ieeexplore.ieee.org/doc
+- 📫 How to reach me prakharvarathe6@gmail.com
+- ⚡ Fun fact I don't care about anyone
